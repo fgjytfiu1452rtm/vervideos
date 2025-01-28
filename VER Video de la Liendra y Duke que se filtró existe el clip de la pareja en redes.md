@@ -1,0 +1,13 @@
+La figura de La Liendra ha sido objeto de atención constante, pero últimamente, su participación en la segunda temporada de 'La Casa de los Famosos Colombia' ha llevado su popularidad a nuevos niveles. Sin embargo, no todo es luz y risas, ya que un video de dos años atrás ha vuelto a la palestra, generando revuelo y controversia.
+
+Este material, que se filtró en 2022, muestra un momento íntimo y comprometedor entre La Liendra y su actual novia, Duke, lo cual ha reavivado el interés del público y ha desatado una ola de comentarios en redes sociales.
+
+Los detalles de este video han sido discutidos apasionadamente por los seguidores del reality, creando un ambiente de especulación y, en ocasiones, de crítica. La participación de La Liendra en el programa ha sacado a la luz no solo su relación con Duke, sino también diversas dinámicas entre los participantes que han capturado la atención de la audiencia.
+
+Video filtrado de la Liendra y Duke
+La Liendra y Dani Duke, enfrentaron la difusión no autorizada de un video privado en febrero de 2022. El material, que mostraba a la pareja en una situación comprometedora, se viralizó rápidamente, lo que obligó a ambos a pronunciarse públicamente sobre el incidente.
+
+En sus declaraciones, La Liendra confirmó que el video había sido robado, una situación que no solo vulneró su intimidad, sino que también desencadenó una ola de críticas y burlas en redes sociales.
+
+Pidió apoyo a sus seguidores y aseguró que ya habían iniciado acciones legales contra quienes resulten responsables de la filtración.
+
