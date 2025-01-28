@@ -1,6 +1,13 @@
 La figura de La Liendra ha sido objeto de atención constante, pero últimamente, su participación en la segunda temporada de 'La Casa de los Famosos Colombia' ha llevado su popularidad a nuevos niveles. Sin embargo, no todo es luz y risas, ya que un video de dos años atrás ha vuelto a la palestra, generando revuelo y controversia.
 
-Este material, que se filtró en 2022, muestra un momento íntimo y comprometedor entre La Liendra y su actual novia, Duke, lo cual ha reavivado el interés del público y ha desatado una ola de comentarios en redes sociales.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 Los detalles de este video han sido discutidos apasionadamente por los seguidores del reality, creando un ambiente de especulación y, en ocasiones, de crítica. La participación de La Liendra en el programa ha sacado a la luz no solo su relación con Duke, sino también diversas dinámicas entre los participantes que han capturado la atención de la audiencia.
 
